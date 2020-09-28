@@ -1,3 +1,2 @@
 Kobe Chenea
-7
 
